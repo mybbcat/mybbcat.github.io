@@ -20,11 +20,11 @@
 
 ### 优惠套餐
 - ##### 7年级寒假班 + 7年级上册专项训练
-  原价860+400=1260元，现**套餐价1100元**。[点击链接去报名](https://h5.renrenjiang.cn/#/meal?key=eyJtZWFsX2lkIjoyMzYwfQ%3D%3D "7年级优惠套餐").
+  原价860+400=1260元，现**套餐价1100元**。[点击链接去报名](https://h5.renrenjiang.cn/#/meal?key=eyJtZWFsX2lkIjoyMzU5fQ%3D%3D "7年级优惠套餐").
 - ##### 8年级寒假班 + 8年级上册专项训练
   原价860+400=1260元，现**套餐价1100元**。[点击链接去报名](https://h5.renrenjiang.cn/#/meal?key=eyJtZWFsX2lkIjoyMzU4fQ%3D%3D "8年级优惠套餐").
 - ##### 9年级寒假班 + 9年级上册专项训练
-  原价960+500=1460元，现**套餐价1260元**。[点击链接去报名](https://h5.renrenjiang.cn/#/meal?key=eyJtZWFsX2lkIjoyMzU5fQ%3D%3D "9年级优惠套餐").
+  原价960+500=1460元，现**套餐价1260元**。[点击链接去报名](https://h5.renrenjiang.cn/#/meal?key=eyJtZWFsX2lkIjoyMzYwfQ%3D%3D "9年级优惠套餐").
 
 ### 联系方式
 ![封老师助教微信](/imgs/1.jpg)
