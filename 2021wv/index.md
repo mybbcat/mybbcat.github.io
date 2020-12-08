@@ -1,4 +1,4 @@
-![](https://upload-images.jianshu.io/upload_images/25388830-79a802b661295883.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](/imgs/logo-small.png)
 > 在2021年寒假中，封老师将利用10节课的时间，为同学们讲解下学期的知识点，着重讲解学习方法，令孩子提前掌握新知识点，待下学期开学后，同学们将更有信心去学习新的知识，更有把握完成新的学习任务。
 ### 时间安排
 2021年1月24日 至 2月3日，其中1月29日休息，共10天。
