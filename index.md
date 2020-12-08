@@ -1,5 +1,5 @@
 ## 封寒英老师数学网课
-2021年寒假课安排 [链接](https://mybbcat.github.io/2021wv)
+2021年寒假课安排 [链接](https://mybbcat.github.io/2021wv/)
 
 ## 欢迎添加微信
 
